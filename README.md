@@ -1,0 +1,1 @@
+# Allah_Namaz
